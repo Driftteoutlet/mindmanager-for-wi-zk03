@@ -1,4 +1,4 @@
-
+MindManager for Windows professional Utility: Gantt-view & notes-integration is the best MindManager for Windows utility, featuring Gantt-view and notes-integration. Powerful,
 
 
 
